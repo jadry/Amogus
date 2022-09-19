@@ -1,2 +1,2 @@
 # Amogus
-Sussy
+sexy
